@@ -1,4 +1,4 @@
-# Brand24 Coupon Copdes 2025 (Upto 70% Discount & Offers)
+# Brand24 Coupon Codes 2025 (Upto 70% Discount & Offers)
 
 Brand24 is a tool that helps you keep track of what people are saying about your business online. It collects mentions of your brand from places like social media, news sites, blogs, and forums. This way, you can see if people are happy or unhappy with your products or services and respond quickly.
 
