@@ -93,7 +93,7 @@ These features combined make Brand24 a powerful tool to keep your finger on the 
 <img src="https://drive.google.com/uc?export=view&id=16GPccgw1mUkqXJFEgnBxrvcdlH8lrHot" alt="Check Detailed Features"> 
 </a>
 
-## Brand24 Coupon Code
+## Brand24 Coupon Codes & Deals
 
 Brand24 often offers promotional codes and deals to help you save on their social listening and media monitoring services. Here are some active coupon codes as of May 2025:
 
